@@ -1,7 +1,7 @@
 - 🦋 Hi, I’m Lilyan 
 - 🦕 I’m interested in computers, tech, gaming, game development, and design
 - 🌊 I’m currently learning how to code
-- 💙 I’m looking to collaborate on any game devlopment projects and desigining projects.
+- 💙 I’m always looking to learn more from others
 - 🎐 How to reach me: you can contact me through my email @lilyn6862@gmail.com or you can text me @ 425-563-0415 
 
 <!---
